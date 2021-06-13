@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pawansaini29
-- 👀 I’m interested in Programming and space as well.
+- 👀 I’m interested in Programming and space exploration.
 - 🌱 I’m currently learning Programming
 - 💞️ I’m looking to collaborate on :-(
 - 📫 How to reach me ...
